@@ -1,1 +1,1 @@
-# Computer Science Study Material 📚
+# 📚Computer Science Study Material 
